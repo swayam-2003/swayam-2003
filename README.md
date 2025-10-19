@@ -14,9 +14,9 @@
 
 - 📫 How to reach me **swayamvasudevnayak@gmail.com**
 
-- 📝 I regularly write articles on **[https://medium.com/@swayamvasudevnayak/the-illusion-of-thinking-in-laymans-terms-6e06055d80e3](https://medium.com/@swayamvasudevnayak/the-illusion-of-thinking-in-laymans-terms-6e06055d80e3)**
+- 📝 An article I wrote on **[https://medium.com/@swayamvasudevnayak/the-illusion-of-thinking-in-laymans-terms-6e06055d80e3](https://medium.com/@swayamvasudevnayak/the-illusion-of-thinking-in-laymans-terms-6e06055d80e3)**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1HF9sPHAxqt0w14l8ZtSLJMZ1wZmCqM7c/view?usp=sharing](https://drive.google.com/file/d/1HF9sPHAxqt0w14l8ZtSLJMZ1wZmCqM7c/view?usp=sharing)**
+- 📄 My Resume/CV **[https://drive.google.com/file/d/1HF9sPHAxqt0w14l8ZtSLJMZ1wZmCqM7c/view?usp=sharing](https://drive.google.com/file/d/1HF9sPHAxqt0w14l8ZtSLJMZ1wZmCqM7c/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
