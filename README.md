@@ -8,7 +8,7 @@
 
 - 🌱 I'm currently learning **Nestjs and Typescript**
 
-- 👯 I'm looking to collaborate on **open Source Projects**
+- 👯 I'm looking to collaborate on **open source projects**
 
 - 🤝 I'm looking for help with **learning system design**
 
