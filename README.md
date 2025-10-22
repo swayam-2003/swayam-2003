@@ -1,4 +1,4 @@
-# Hi 👋, I'm Swayam Nayak
+# Hey, I'm Swayam Nayak
 
 ### Full-stack Developer
 
